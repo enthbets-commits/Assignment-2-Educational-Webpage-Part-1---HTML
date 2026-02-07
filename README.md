@@ -1,1 +1,0 @@
-# Assignment-2-Educational-Webpage-Part-1---HTML
